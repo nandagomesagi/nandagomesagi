@@ -1,4 +1,5 @@
-<img width="1365" height="768" alt="IMOs2b9QJzeqo" src="https://github.com/user-attachments/assets/fcb94d93-ee14-4202-8202-84ee50f9fae3" />
+<img width="2172" height="724" alt="Emblema Geométrico em Esquema Técnico" src="https://github.com/user-attachments/assets/2c1dae80-b690-44f1-b115-dc97045c6852" />
+
 
 # NANDA GOMES AI®
 
